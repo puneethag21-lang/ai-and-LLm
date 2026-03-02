@@ -1,1 +1,1 @@
-# ai-and-LLm
+# ai-and-LLm ARE NEW GEN AI !
